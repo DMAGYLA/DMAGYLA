@@ -1,5 +1,5 @@
 -  I’m @DMAGYLA
-- I’m interested in History, State development, Economic plans of infastructior, developments in engineering and other inovations in technology.
+- I’m interested in History, State development, Economic plans of infrastructior, developments in engineering and other inovations in technology.
 - I’m currently learning POLITICAL ECONOMY
 - I’m looking to collaborate on projects connected to History, State development, economic infastructure development and so on
 - You can reach me on my dm18012@essex.ac.uk or linkin
